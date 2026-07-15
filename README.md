@@ -55,4 +55,4 @@ Our mission is to make luxury event planning simple, elegant, and stress-free by
 
 ---
 
-Made with ❤️ by **Imantha Ushan**
+Made with ❤️ by **sathya vitharanage**
